@@ -1,4 +1,3 @@
 # -Test
 
-Jednog zelenog dana, onog zelenog leta
-Kada je bela rada odlučila da cveta...
+Umesto da spremam UNM, ja se zezam sa ovim
