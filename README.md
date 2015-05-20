@@ -1,3 +1,3 @@
 # -Test
 
-Umesto da spremam UNM, ja se zezam sa ovim
+Kidam UNM! Oh, wait...
